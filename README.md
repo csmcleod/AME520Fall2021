@@ -1,2 +1,2 @@
-# AME520Fall2021
-assignments for ame 520
+Cole McLeod
+1212494866
